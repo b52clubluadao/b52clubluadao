@@ -1,16 +1,15 @@
-### Hi there 👋
+### B52 Club lừa đảo
 
-<!--
-**b52clubluadao/b52clubluadao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+B52 Club lừa đảo, thắng bị khoá tài khoản không cho rút tiền có thật không?
 
-Here are some ideas to get you started:
+Sau một thời kì nghiên cứu và Đánh giá kỹ, chúng tôi sở hữu thể khẳng định thông báo cổng game B52 lường đảo là hoàn toàn sai lầm. Vì phần nhiều các nguồn tin đồn này đều ko mang minh chứng chính xác, thông thường đều là các trương mục ẩn danh mà thôi, chúng tôi thậm chí mang nghi ngại rằng đây là chiêu trò khó khăn bẩn của phổ quát cổng game bài dành cho B52.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+https://iwinios.link/game/b52-club-lua-dao/
+
+https://www.beatstars.com/zransheney268
+
+https://b52clubluadao.cgsociety.org/profile
+
+https://www.mixcloud.com/b52clubluadao/
+
+https://www.producthunt.com/@sheney_zran
